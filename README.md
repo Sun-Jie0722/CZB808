@@ -1,2 +1,4 @@
 # CZB808
-WElCOME TO OUR CLASS. THIS IS LONGMEN MIDDLE SCHOOL CLASS808. 
+欢迎来到我们班。这里是龙门中学808班。
+如果你有关于我们班级的你认为值得留下来的照片，请发送至邮箱2252970615@qq.com。
+谢谢的！
